@@ -10,4 +10,5 @@ Meu nome é Kauan Eduardo da Silva
 
 kauaneduardosilva2019@gmail.com
 
-![](https://github.com/KES06C07/KES06C07/assets/171052055/71dbdf73-55df-417c-be88-27e9d16f6185)
+![](https://github.com/KES06C07/KES06C07/assets/171052055/b412c332-f73e-4075-884e-92d899ed1898)
+
